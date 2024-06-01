@@ -1,1 +1,1 @@
-# website
+MAGA Movement on the Blockchain. Supporting army veterans, children, and victims of political persecutions & witch hunts. Occasionally supporting adult film actresses. Donations made to Trump's re-election campaign.
